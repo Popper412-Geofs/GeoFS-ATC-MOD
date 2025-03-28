@@ -1,0 +1,1 @@
+You HAVE to DM me at https://e.widgetbot.io/channels/1341224598104051744/1341224598712356928 if you want to contribute. if you don't and u contributed on this without my permission. You will be in some hot water
